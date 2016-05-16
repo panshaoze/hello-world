@@ -2,6 +2,6 @@
 
 Hello there!
 
-This is Shaoze's first Github comments
+This is Shaoze's first Github account
 
-Feel free to use any of my future postings. 
+Feel free to use any of my shared stuff. 
